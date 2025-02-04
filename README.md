@@ -1,13 +1,13 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/515c8d4a6b28801673333e1e7b066505/3bbad5c28faf2d05-56/s1280x1920/b277e10990aab90427aaa7dac337becf71fe2e1e.pnj" 
+  <img src="https://64.media.tumblr.com/71328e3c241f61a5223e088c1eabf9bc/c76fd125d9fa69a2-4c/s640x960/61b722e4e15b61f2703d6f076dcae4b084682e29.pnj" 
     </p>
 
   <p align="center">
-  "But with you... maybe..."
+  "　ᵔ　　i just want my     friends back . . .　　⌓⌓"
   </p>
   
  <p align="center">
-<img src="https://64.media.tumblr.com/7dbb80e2260fdb83014cf30508dfc720/91b50a3b608f2da0-82/s640x960/e41339b68f5f0c5dce6ab2cb45af58be7be96de4.gifv" width="450" height="300">
+<img src="https://64.media.tumblr.com/850c6fb27563cd5bef4afb11d90c1b6d/c76fd125d9fa69a2-47/s1280x1920/571c5947f9431a126c2b0c683b6f03ac00eed36c.gifv" width="450" height="300">
  </p>
 
   <p align="center">
@@ -15,12 +15,14 @@
  </p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/ba646136a44684d3b4791affc2b4a15b/91b50a3b608f2da0-25/s640x960/f5f1a92d4f2591578484b09bf09c1caccb3aefa4.gifv" width="300" height="200">
+<img src="https://64.media.tumblr.com/ef84e17733c4b41eceaafc06e95f6ef8/a79b7e7ff6d9f04a-5f/s1280x1920/d3cef88f37d00fbf8d7768c9f08933f5d3a987d6.gifv" width="500" height="300">
 </p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/c0d50c3461b1ad80f456b55aa9e2818f/0d9d6392a423e969-4b/s500x750/5e8009b803cd5ad8f13c401afb20de5b32a8f61c.gifv" width="700" height="20">
+<img src="https://64.media.tumblr.com/6fae21709c43c55d055f59ddee9b8230/98d24b69e3e7be52-a4/s1280x1920/91a3aebb33dad83e0528a5038094e25107325e5d.pnj" width="700" height="60">
 </p>
 
 
-
+  <p align="center">
+  "。　　credit to　　◠　　llocket & others on tumblr　　✿"
+  </p>
