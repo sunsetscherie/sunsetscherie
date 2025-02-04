@@ -3,7 +3,7 @@
     </p>
 
   <p align="center">
-  "　ᵔ　　i just want my     friends back . . .　　⌓⌓"
+  ''　ᵔ　　i just want my     friends back . . .　　⌓⌓''
   </p>
   
  <p align="center">
